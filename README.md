@@ -1,0 +1,2 @@
+# remainderandfactortheoremlesson-1745823243606
+Website for RemainderandFactorTheoremLesson by math@gmail.com
